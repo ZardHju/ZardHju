@@ -17,4 +17,4 @@
 
 ### Contact me(Don't come to me if you're okay)
 * **QQ:** [**`1587216783`**](https://qm.qq.com/q/voAd7nGTnk)
-* **E-mail:** **`ZardHju@qq.com`**
+* **E-mail:** **`zardhju@qq.com`**
